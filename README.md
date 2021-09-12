@@ -1,5 +1,5 @@
 - 👋 Hi, I’m TD9.
-- 👀 I’m interested in Economics, Poetry & Nutrition. 
+- 👀 I’m interested in Economics, Poetry, Youth Development & Nutrition. 
 - 🌱 I’m currently learning Data Analytics. 
 - 💞️ I’m looking to collaborate on Data Analytics Projects. 
 - 📫 How to reach me Tony.E.Denis@hotmail.com
